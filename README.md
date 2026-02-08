@@ -1,2 +1,2 @@
-Jocking and flocking at all of them, NO QUESTIONS
+# We be in these streets rocking these AI HEADS!!
 Practice 
